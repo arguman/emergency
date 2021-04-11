@@ -1,3 +1,3 @@
-AI involves in GREEN
-POLICE involves in BUT
-NOTHING happens in HOWEVER
+- AI involves in GREEN (zulere)
+- POLICE involves in BUT (acaba)
+- NOTHING happens in HOWEVER (lelere)
