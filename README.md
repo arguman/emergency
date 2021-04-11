@@ -1,1 +1,3 @@
-![](https://raw.githubusercontent.com/fatiherikli/hospital/master/interface.svg)
+AI involves in GREEN
+POLICE involves in BUT
+NOTHING happens in HOWEVER
